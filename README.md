@@ -2,7 +2,7 @@
 
 > 태평양 상공을 누비며 32스테이지를 돌파하라! 붉은 돼지 풍 레트로 복엽기로 출격!
 
-**▶ 지금 바로 플레이** → [https://mindweaver74.github.io/1942-reborn](https://mindweaver74.github.io/1942-reborn)
+**▶ 지금 바로 플레이** → [https://mindweaver74.github.io/1942-reborn](https://mindweaver74.github.io/1942)
 
 ---
 
